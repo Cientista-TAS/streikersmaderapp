@@ -1,0 +1,2 @@
+# streikersmaderapp
+projeito fesengkgvkedf fuwewjesrg
